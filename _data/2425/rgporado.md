@@ -1,5 +1,4 @@
-emoji 
-😷 y'all!
+emoji :🤧: allergy is real!
 ***
 about_me
 >  Hi I'm Renilyn Grace, I like to cook and layout programs and invitations.
